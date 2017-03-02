@@ -2,3 +2,9 @@
 민수, 회언, 영준
 
 specailGame2 start!
+specailGame2 start!
+specailGame2 start!
+specailGame2 start!
+specailGame2 start!
+specailGame2 start!
+specailGame2 start!
